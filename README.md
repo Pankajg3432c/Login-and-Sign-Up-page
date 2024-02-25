@@ -10,3 +10,6 @@ https://l.instagram.com/?u=https%3A%2F%2Fwww.linkedin.com%2Fin%2Fpankaj-gupta-31
 https://www.linkedin.com/in/pankaj-gupta-31307b24a?fbclid=PAAaZA27-AlxMnlIPmugDJTp7YG1ieKwbw2r7Yu1YumTNuLBi1Gc_rFVPCcWw
 
 
+https://www.linkedin.com/in/pankaj-gupta-31307b24a
+
+
